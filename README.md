@@ -4,4 +4,3 @@
 I love warhammer40k and star wars and I love things about the military 
 and history ︵  🐾🗡  ︵  and I love fantasy movies and I love Heavy metal magazines!!
 
-!limage alt](Untitled2204_20251022214107.png)
